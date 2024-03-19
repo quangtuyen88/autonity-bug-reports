@@ -1,0 +1,1 @@
+The username `validatorvn` increase 100 point each day instead of 50 compare with other users. that is critical issue 
